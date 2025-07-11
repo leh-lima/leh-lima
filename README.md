@@ -26,7 +26,7 @@ Sou técnica em Informática com interesse em desenvolvimento de software, inter
 
 ## 📫 Contato
 
-- Email: leticiameirinholims@gmail.com  
+- Email: leticiameirinholima@gmail.com  
 - LinkedIn: www.linkedin.com/in/letícia-meirinho-lima-3472a1340  
 
 ---
